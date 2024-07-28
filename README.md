@@ -4,7 +4,7 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=CONTACT+CARL+WILLIAM)](https://git.io/typing-svg)
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
-  𝔽𝕆𝕃𝕃𝕆𝕎 𝕄𝔼 𝕆ℕ [`𝐆𝐈𝐓𝐇𝐔𝐁`](https://github.com/Carl165)
+  𝔽𝕆𝕃𝕃𝕆𝕎 𝕄𝔼 𝕆ℕ [`𝐆𝐈𝐓𝐇𝐔𝐁`](https://github.com/Carl165)🐈‍⬛🌟
   
 ℂ𝕆ℕ𝕋𝔸ℂ𝕋 𝕄𝔼 𝕆ℕ[`𝕎ℍ𝔸𝕋𝕊𝔸ℙℙ`](https://wa.link/c9qf2z)🥷🪀
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
