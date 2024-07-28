@@ -1,7 +1,7 @@
 ##𝑪𝑨𝑹𝑳𝑻𝑬𝑪𝑯 𝑰𝑵𝑭𝑶
   𝕮𝕬𝕽𝕷𝕿𝕰𝕮𝕳 𝕴𝕹𝕱𝕺 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=CONTACT+CARL+TECH+ON+WHATSAPP+WILLIAM)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=CONTACT+CARL+WILLIAM)](https://git.io/typing-svg)
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
   𝔽𝕆𝕃𝕃𝕆𝕎 𝕄𝔼 𝕆ℕ [`𝐆𝐈𝐓𝐇𝐔𝐁`](https://github.com/Carl165)
