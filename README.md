@@ -14,5 +14,6 @@
 -<h1 align="center"> [■■■■■■■ 100% safe]
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
+ℂ𝕆ℕ𝕋𝔸ℂ𝕋 𝕄𝔼 𝕆ℕ [`𝕋𝔼𝕃𝔼𝔾ℝ𝔸𝕄`](https://t.me/Carl)
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=𝕻𝕽𝕺𝕲𝕽𝕬𝕸𝕸𝕰𝕯+𝕭𝖄+𝕬+𝕲𝕰𝕹𝖅+🏴󠁵󠁳󠁴󠁸󠁿)](https://git.io/typing-svg)
