@@ -6,7 +6,10 @@
 
   𝔽𝕆𝕃𝕃𝕆𝕎 𝕄𝔼 𝕆ℕ [`𝐆𝐈𝐓𝐇𝐔𝐁`](https://github.com/Carl165)🐈‍⬛🌟
   
-ℂ𝕆ℕ𝕋𝔸ℂ𝕋 𝕄𝔼 𝕆ℕ[`𝕎ℍ𝔸𝕋𝕊𝔸ℙℙ`](https://wa.link/c9qf2z)🥷🪀
+ℂ𝕆ℕ𝕋𝔸ℂ𝕋 𝕄𝔼 𝕆ℕ[`𝕎ℍ𝔸𝕋𝕊𝔸ℙℙ`](https://wa.link/c9qf2z)<img src="https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
+  </a>&nbsp;&nbsp;
+
+
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 𝕁𝕆𝕀ℕ 𝕄𝕐[`𝕎ℍ𝔸𝕋𝕊𝔸ℙℙ 𝕊𝕌ℙℙ𝕆ℝ𝕋𝔼𝔻 𝔾ℝ𝕆𝕌ℙ `](https://chat.whatsapp.com/LgBAp1KjbCBHsgZMKi46aO)🪀🧑‍🧑‍🧒‍🧒
 
