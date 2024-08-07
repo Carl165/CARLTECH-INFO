@@ -16,7 +16,7 @@
 𝕁𝕆𝕀ℕ 𝕄𝕐[`𝕎ℍ𝔸𝕋𝕊𝔸ℙℙ 𝕊𝕌ℙℙ𝕆ℝ𝕋𝔼𝔻 𝔾ℝ𝕆𝕌ℙ `](https://chat.whatsapp.com/LgBAp1KjbCBHsgZMKi46aO)🪀🧑‍🧑‍🧒‍🧒
 
 
-𝔽𝕆𝕃𝕃𝕆𝕎 𝕄𝕐 [`𝕊𝕌ℙℙ𝕆ℝ𝕋𝔼𝔻 𝔹𝕆𝕋 ℂℍ𝔸ℕℕ𝔼𝕃`](https://whatsapp.com/channel/0029Vak0genJ93wQXq3q6X3h)<img src="https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
+𝔽𝕆𝕃𝕃𝕆𝕎 𝕄𝕐 [`𝕊𝕌ℙℙ𝕆ℝ𝕋𝔼𝔻 𝔹𝕆𝕋 ℂℍ𝔸ℕℕ𝔼𝕃`](https://whatsapp.com/channel/0029Vak0genJ93wQXq3q6X3h)<img src="https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp channel&logoColor=blue" />
   </a>&nbsp;&nbsp;
 
 ℂ𝕆ℕ𝕋𝔸ℂ𝕋 𝕄𝔼 𝕆ℕ [`𝕋𝔼𝕃𝔼𝔾ℝ𝔸𝕄`](https://t.me/Carl)<img src="https://img.shields.io/badge/Telegram-25D366?style=for-the-badge&logo=telegram&logoColor=blue" />
